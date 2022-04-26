@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @IchBinEinMann
+- 👋 Hi, I’m @IchBinEinMann.
 - 📫 How to reach me loxonnnyt@gmail.com
